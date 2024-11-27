@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI community 
 - 🌱 I’m currently learning how to do everyone happy :)
 - 💞️ I’m looking to collaborate on and on ...
-- 📫 How to reach me ? Dont adk me, Just make me reach, please.
+- 📫 How to reach me ? Dont ask me, Just make me reach, please.
 - 😄 Pronouns: tell me yours
 - ⚡ Fun fact:
 - Borat: What kind of dog is this?
